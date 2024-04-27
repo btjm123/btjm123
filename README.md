@@ -1,4 +1,4 @@
-### Hello! 👋 I'm Jia Ming (Benn).
+### Hello! 👋 I'm Benn.
 
 Yes, my name is spelt like that!
 
